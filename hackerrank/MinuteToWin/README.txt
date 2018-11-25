@@ -1,0 +1,1 @@
+https://www.hackerrank.com/contests/w38/challenges/minute-to-win-it/problem
